@@ -17,7 +17,7 @@
 
 - 📫 Contato: **analistajferreiraalves@gmail.com**
 
-- ⚡ Fato sobre mim: **Amo a minha família 👨‍👩‍👧‍👦**
+- ⚡ Fato sobre mim: **Amo Jesus e Amo a minha família 👨‍👩‍👧‍👦**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
